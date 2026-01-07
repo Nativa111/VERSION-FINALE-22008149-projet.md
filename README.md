@@ -5,6 +5,7 @@
 ## 22008149
 ## G2 Finance
 ## BD-DS
+## Lien video: " https://drive.google.com/file/d/1v5BJFJwOguyTYg42e3GEcZUZz0ub_Zna/view?usp=drive_link "
 
 
 
